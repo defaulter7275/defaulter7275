@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @defaulter7275
 - 👀 I’m interested in coding
-- 🌱 I’m currently selg learning 
+- 🌱 I’m currently self learning 
 - 💞️ I’m looking to collaborate on .....
 - 📫 How to reach me at satym0696@gmail.com
 
